@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @tzuohann
-- I am launching the most exciting furniture production shop on the planet over the next year. Stay tuned.
+- I am launching the most exciting millwork shop on the planet over the next year. Stay tuned.
